@@ -1,1 +1,1 @@
-This task is trashing me
+I will understand git
