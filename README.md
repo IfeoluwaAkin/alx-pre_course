@@ -1,1 +1,1 @@
-I will pass and become a software guru
+I have a growth mindset
